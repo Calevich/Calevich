@@ -2,7 +2,7 @@
 - 👀 I’m interested in ..))ooq
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... rdthjsdtrhrrjh
+- 📫 How to reach me ... t7iukfjcnxfyjnf
 - 😄 Pronouns: .
 - ⚡ Fun fact: .fkjhuio
 Calevich/Calevich is a ✨ special ✨ repository because its appears on your GitHub profile.
